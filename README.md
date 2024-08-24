@@ -1,1 +1,1 @@
-Fourth-year mathematics undergraduate at Kansas State University, interested in symplectic geometry and functional analysis.
+Incoming mathematics Ph.D. student at the University of Washington.
