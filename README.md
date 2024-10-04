@@ -1,1 +1,1 @@
-Incoming mathematics Ph.D. student at the University of Washington.
+Mathematics Ph.D. student at the University of Washington.
